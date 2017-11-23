@@ -49,7 +49,7 @@ https://www.youtube.com/watch?v=YjtdSaZfldU
 17.22 Rubber Band Hacks to Simplify Your Life (橡皮筋22個創意) [遙控器防滑,湯匙防滑,吸管固定,茶包固定,電池充電與否標記,相框內相片防滑,尖嘴鉗變身焊接用的固定夾,指夾由瓶蓋阻尼增加器,牛仔褲拉鍊防滑裝置,臨時橡皮擦,叉子便烤肉夾,砧板防滑,手機臨時固定器,崩牙螺絲旋開補救,自製線頭保護,限制洗髮精按壓量,鍋蓋防滑]
 https://www.youtube.com/watch?v=uSfpjRZz0DU
 
-18.20 Hangers Life Hacks Everyone Should Know
+18.20 Hangers Life Hacks Everyone Should Know (衣架20個創意) []
 https://www.youtube.com/watch?v=NoeARy-5j5g
 
 19.9 Awesome Hot Glue Gun Life Hacks
