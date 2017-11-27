@@ -55,7 +55,7 @@ https://www.youtube.com/watch?v=NoeARy-5j5g
 19.9 Awesome Hot Glue Gun Life Hacks (熱熔膠9個創意) [修理電線外皮,鞋底防滑,曬衣架防滑,戒指防滑,地墊防滑,酒杯防滑,水管簡易防漏,自製吊飾,自製花瓶]
 https://www.youtube.com/watch?v=gihBSmPjyrw
 
-20.《必學生活智慧》多出的吸管可以這樣做　超實用妙招
+20.《必學生活智慧》多出的吸管可以這樣做　超實用妙招 [密封夾,,,,,,,,,,,,,,,,,,,]
 https://www.youtube.com/watch?v=7OTjrjk8SQQ
 
 21.为什么说热熔胶是万能的，看完这个视频我就明白了！
