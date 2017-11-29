@@ -58,10 +58,10 @@ https://www.youtube.com/watch?v=gihBSmPjyrw
 20.《必學生活智慧》多出的吸管可以這樣做　超實用妙招 [密封夾,菜刀收納,紙張防水收納]
 https://www.youtube.com/watch?v=7OTjrjk8SQQ
 
-21.为什么说热熔胶是万能的，看完这个视频我就明白了！ [眼鏡防滑加工,,,,,,,,,,,,,,,,,,,,,,,,,,,,]
+21.为什么说热熔胶是万能的，看完这个视频我就明白了！ [眼鏡防滑加工,自製橡皮筋(髮圈),光碟保護套,塑膠戒指,自製美工刀,整線器,筆電墊高器,自製收納袋,馬克杯外掛湯匙架,自製美工刀2,自製美工刀3,自製美工刀4]
 https://www.youtube.com/watch?v=I_oiz8uQJe8
 
-22.8 Awesome Hot Glue Gun Life Hacks
+22.8 Awesome Hot Glue Gun Life Hacks (熱熔膠8個創意) [,,,,,,,]
 https://www.youtube.com/watch?v=JZr8qg4243A
 
 23.27 FANTASTIC THINGS TO MAKE WITH GLUE GUN
