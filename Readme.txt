@@ -61,10 +61,10 @@ https://www.youtube.com/watch?v=7OTjrjk8SQQ
 21.为什么说热熔胶是万能的，看完这个视频我就明白了！ [眼鏡防滑加工,自製橡皮筋(髮圈),光碟保護套,塑膠戒指,自製美工刀,整線器,筆電墊高器,自製收納袋,馬克杯外掛湯匙架,自製美工刀2,自製美工刀3,自製美工刀4]
 https://www.youtube.com/watch?v=I_oiz8uQJe8
 
-22.8 Awesome Hot Glue Gun Life Hacks (熱熔膠8個創意) [,,,,,,,]
+22.8 Awesome Hot Glue Gun Life Hacks (熱熔膠8個創意) [彩妝毛刷收納套,裝飾燈照,筆筒,小玩偶,密封夾,軟木塞手機架,焊接架,軟木塞相片架]~baking paper
 https://www.youtube.com/watch?v=JZr8qg4243A
 
-23.27 FANTASTIC THINGS TO MAKE WITH GLUE GUN
+23.27 FANTASTIC THINGS TO MAKE WITH GLUE GUN (熱熔膠27個創意) []
 https://www.youtube.com/watch?v=UeJm1yCz2sg
 
 24.衣架和4個驚人的東西 - 生活黑客
