@@ -64,7 +64,7 @@ https://www.youtube.com/watch?v=I_oiz8uQJe8
 22.8 Awesome Hot Glue Gun Life Hacks (熱熔膠8個創意) [彩妝毛刷收納套,裝飾燈照,筆筒,小玩偶,密封夾,軟木塞手機架,焊接架,軟木塞相片架]~baking paper
 https://www.youtube.com/watch?v=JZr8qg4243A
 
-23.27 FANTASTIC THINGS TO MAKE WITH GLUE GUN (熱熔膠27個創意) []
+23.27 FANTASTIC THINGS TO MAKE WITH GLUE GUN (熱熔膠27個創意) [牙刷改裝外加漱口功能,自製拖鞋,電線保護,橡皮擦,門簾收納磁釦,自製螺絲起子把手,防滑碗盤杯墊,具有直尺功能的鉛筆,密封夾,橡皮筋(髮圈),髮圈,帽子,皮夾,手機保護殼,可加熱美工刀(切塑膠瓶),鉗子塑膠握把,布鞋防滑,紓壓按摩棒,吊飾,首飾,戒指防滑,水塞,燈罩,防滑手套,菜刀套,鈕扣,清洗水彩筆專用版,罰寫專用快速筆,眼鏡鼻翼保護墊,防切手套,立體防水文字]
 https://www.youtube.com/watch?v=UeJm1yCz2sg
 
 24.衣架和4個驚人的東西 - 生活黑客
