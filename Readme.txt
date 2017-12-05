@@ -70,7 +70,7 @@ https://www.youtube.com/watch?v=UeJm1yCz2sg
 24.衣架和4個驚人的東西 - 生活黑客 [手機架,圓規,沖天炮,掛勾]
 https://www.youtube.com/watch?v=kULZsS1kB-c
 
-25.萬字夾的用途
+25.萬字夾的用途 [手機架1,USB線收納,手機線變身充電架,刮鬍刀收納,耳機線收納,毛線收納,手機架2,圍巾收納,洋芋片包收納,擠牙膏,手機架3(不建議),出門忘記帶錢防呆,掛日曆/月曆,彈射玩具]
 https://www.youtube.com/watch?v=k8cbDZ4FkwU
 
 26.11生活黑客 | 長尾夾
