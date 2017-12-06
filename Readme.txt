@@ -73,7 +73,7 @@ https://www.youtube.com/watch?v=kULZsS1kB-c
 25.萬字夾的用途 [手機架1,USB線收納,手機線變身充電架,刮鬍刀收納,耳機線收納,毛線收納,手機架2,圍巾收納,洋芋片包收納,擠牙膏,手機架3(不建議),出門忘記帶錢防呆,掛日曆/月曆,彈射玩具]
 https://www.youtube.com/watch?v=k8cbDZ4FkwU
 
-26.11生活黑客 | 長尾夾
+26.11生活黑客 | 長尾夾 [手機架,牙刷架,手機線變身充電架,耳機線收納,刮鬍刀收納,擠牙膏,USB線收納]
 https://www.youtube.com/watch?v=kiog2xy4PTI
 
 27.教你用回形针開鎖- Pick Lock with Gem Clips
